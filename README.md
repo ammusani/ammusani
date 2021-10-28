@@ -6,6 +6,6 @@
    
 - Contact Details
    
-   -- Discord - ammusani#6405
+   -- Discord - ammusani#6406
    
    -- Email - aliasgarmusani@gmail.com
