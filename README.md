@@ -8,4 +8,4 @@
    
    -- Discord - ammusani#6406
    
-   -- Email - aliasgarmusani@gmail.com
+   -- Email - aliasgar.musani@proton.me
